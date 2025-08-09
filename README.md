@@ -1,1 +1,1 @@
-# TusaGO-privacy-policy
+# ВТеме-privacy-policy
